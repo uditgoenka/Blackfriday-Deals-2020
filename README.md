@@ -139,6 +139,13 @@
 > **What:** 20% off annual subscription + mention "Kate sent me", to get a cosy Go Hack Yourself hoodie with purchase.
 
 
+**SEOengine.ai**
+
+> **Link:** https://seoengine.ai
+
+> **What:** 35% OFF with code BLACKFRIDAY (Nov 17 - Dec 7) - 5 AI agents, AEO-optimization, and E-E-A-T compliance
+
+
 ### Hardware
 ---
 **Hak5**
